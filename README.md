@@ -1,0 +1,1 @@
+Globalcredits POS/POW Cryptocurrency
